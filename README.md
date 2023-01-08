@@ -1,1 +1,1 @@
-Kossay Srayaldin, ksrayaldin
+Kossay Srayaldin
